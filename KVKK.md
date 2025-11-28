@@ -2,7 +2,7 @@
 
 **Pati Paws – KVKK Aydınlatma Metni** **Yürürlük Tarihi:** 11/08/2025 
 
-**Veri Sorumlusu:** Yiğit Burak Yıldırım \(“Pati Paws”, “biz”\) **İletişim:** pati .pawss@gmail.com 
+**Veri Sorumlusu:** Yiğit Burak Yıldırım \(“Pati Paws”, “biz”\) **İletişim:** patii.pawss@gmail.com 
 
 **1. Veri Sorumlusunun Kimliği** 
 
