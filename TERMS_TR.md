@@ -6,7 +6,7 @@
 
 **Geliştirici:** DataciYigit 
 
-**İletişim:** pati .pawss@gmail.com 
+**İletişim:** patii.pawss@gmail.com 
 
 
 
