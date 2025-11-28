@@ -246,7 +246,7 @@ If such data is discovered, we wil delete it immediately.
 
 • Opt out of data sharing \(we do not share for advertising\) 
 
-• Not be discriminated against for exercising your rights To submit requests, contact us at: ygtburakyildirim@gmail.com** **
+• Not be discriminated against for exercising your rights To submit requests, contact us at: patii.pawss@gmail.com** **
 
 
 
@@ -316,7 +316,7 @@ Significant changes will be communicated via:
 
 **14. Contact Us** 
 
-If you have questions or privacy requests, contact us: **Email:** ygtburakyildirim@gmail.com
+If you have questions or privacy requests, contact us: **Email:** patii.pawss@gmail.com
 
 
 
